@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on matemática
 - 📫 How to reach me whatsapp
 - 😄 Pronouns: Sr.
-- ⚡ Fun fact: adora esportes
+- ⚡ Fun fact: adora
 
 <!---
 Alessandraprof/Alessandraprof is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
